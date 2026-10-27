@@ -12,5 +12,5 @@ Când ne găsiți?
 Pentru o comunicare mai ușoară și noi anunțuri: https://chat.whatsapp.com/LPLErKtM1Se4BxbE8bFj15
 
 
-Repository pentru materialele de la Tutoriatul de PL 2, susținut de Gherghe Ana și Matei Sorana.\
-Semestru I, Anul 2026
+Repository pentru materialele de la Tutoriatul de PL 2, susținut de Gherghe Ana (262) și Matei Sorana (262).\
+Semestrul I, Anul 2026
