@@ -5,8 +5,7 @@ Bine ați venit pe pagina de Tutoriat PL 2! Ne bucurăm să oferim materiale și
 
 Când ne găsiți?
 
-🔆LUNI, fizic de la orele 8-10, sală S. 213, la PB Tower 
-
+🔆LUNI, fizic de la orele 8-10, sală S. 213, la PB Tower
 💻DUMINICĂ, online de la 18-20
 
 Pentru o comunicare mai ușoară și noi anunțuri: https://chat.whatsapp.com/LPLErKtM1Se4BxbE8bFj15
